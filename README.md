@@ -1,2 +1,3 @@
-AI-DRIVEN IDEA EVALUATION
-Revolutionizing Innovation Challenges
+**AI-DRIVEN IDEA EVALUATION.**
+
+Revolutionizing Innovation Challenges.
